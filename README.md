@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sesirehal1
+- 👀 I’m interested in wool
+- 🌱 I’m currently learning play
+- 💞️ I’m looking to collaborate on web3
